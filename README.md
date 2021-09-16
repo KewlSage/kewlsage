@@ -12,3 +12,5 @@
 ![doyouworshipallah?](https://dcbadge.vercel.app/api/shield/497161437051879444)
 
 this awesome shield provided by [this](https://github.com/montylion/discord-md-badge).
+
+My stepdad tried to torrent candyman like a fucking dumbass and got our internet service terminated, I might not be active for a while.
