@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently typing something strangly placed after a fucking plant.
 
-- 🥺 Moderate to [sever](https://discord.gg/mc6SbpHeBT)ely big mommy milkers?
+- 🥺 Moderate to [seRver](https://discord.gg/mc6SbpHeBT)ely big mommy milkers?
 
 <h4>Am I online on discord right now??? lets see. </h4>
 
