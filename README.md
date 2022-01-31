@@ -12,3 +12,5 @@
 ![doyouworshipallah?](https://dcbadge.vercel.app/api/shield/497161437051879444)
 
 this awesome shield provided by [this](https://github.com/montylion/discord-md-badge).
+
+[my bdsm test results](https://bdsmtest.org/r/q9bT6gGG), should you want them for some reason.
